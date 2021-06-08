@@ -1,4 +1,4 @@
 * 2 avoocados
 * 1 lime
 * 2 tsp salt
-* coriander
+* 2 coriander
